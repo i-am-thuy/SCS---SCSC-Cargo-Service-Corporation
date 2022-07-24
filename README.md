@@ -1,4 +1,4 @@
-## SSCS is anticipated to be a safe investment choice due to the following factors: 
+## SCS is anticipated to be a safe investment choice due to the following factors: 
 (1) the market in which the firm competes is an oligopoly with just two companies (SCS and TCS, Tan Son Nhat Cargo Services Co.Ltd). 
 
 (2) Strong financial standing; no debts. 
